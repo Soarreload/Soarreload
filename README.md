@@ -2,4 +2,5 @@
 
 Undergraduate Student, Sichuan University
 
-Email: j3832493@gmail.com
+Email: 
+2023141461024@stu.scu.edu.cn
